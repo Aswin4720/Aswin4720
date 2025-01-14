@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Aswin Dhanvandhar
+# Hi there I'm Aswin Dhanvandhar
 
 -Dynamic and results-driven **HR and Recruitment Professional** with expertise in **global talent acquisition** and **technical recruitment**. I specialize in sourcing top talent for IT roles, including software developers, data professionals, SAP consultants, and project managers, across **European and UK markets**.
 
